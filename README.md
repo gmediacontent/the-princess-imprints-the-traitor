@@ -1,1 +1,2 @@
-# the-princess-imprints-the-traitor
+# The Princess Imprints the Traitor
+Ève est une princesse qui porte de forts engagements en faveur de l’égalité. Voilà pourquoi elle a refusé de prendre un chevalier personnel parmi les homonculus, des êtres créés par l’empire à l’aide de la pierre philosophale, et considérés comme des esclaves. Mais ce positionnement l’a ostracisée au sein même de la famille royale. Pour la défendre, Mikhaelis, un homonculus rebelle, sexy et secrètement amoureux d’elle, est prêt à tout ! Y compris mener un coup d’État !
